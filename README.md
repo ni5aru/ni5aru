@@ -13,6 +13,6 @@
 
 <br/>
 
-[Email](anujkumar.290907@outlook.in) &nbsp;·&nbsp; [Website](https://yourwebsite.com) &nbsp;·&nbsp; [X](https://x.com/4nujkumar)
+[Email](mailto:anujkumar.290907@outlook.in) &nbsp;·&nbsp; [Website](https://yourwebsite.com) &nbsp;·&nbsp; [X](https://x.com/4nujkumar)
 
 </div>
