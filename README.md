@@ -13,6 +13,6 @@
 
 <br/>
 
-[Email](mailto:hello@4nujkumxr.qzz.io) &nbsp;·&nbsp; [Website](https://4nujkumxr.qzz.io) &nbsp;·&nbsp; [X](https://x.com/4nujkumar)
+[Email](mailto:hello.4nuj@outlook.in) &nbsp;·&nbsp; [Website](https://4nujkumxr.qzz.io) &nbsp;·&nbsp; [X](https://x.com/4nujkumxr)
 
 </div>
